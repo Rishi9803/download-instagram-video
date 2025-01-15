@@ -12,7 +12,7 @@ Paste the URL into the video downloader text field and click the Download button
 **Download**
 Quickly you will get the results with several quality options. Download what fits your needs.
 
-Features of [Instagram Video Downloader](https://instaclip.app)
+Features of [Instagram Video Downloader](https://instaclip.app/)
 Explore the powerful features of our video downloader to take your downloading to the next level.
 
 Seamless Video Downloading
@@ -46,3 +46,8 @@ Try Now
 **Supported Video Downloaders**
 
 Facebook Instagram TikTok ShareChat Moj Telegram Snapchat Youtube
+
+List
+[Instagram Video Downloader](https://instaclip.app/)
+[download instagram video](https://instaclip.app/) Images and Reels
+[Instagram Video Download](https://instaclip.app/) 
